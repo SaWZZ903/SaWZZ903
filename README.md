@@ -2,14 +2,14 @@
 
 Hello, 
 
-thank you for purchasing my Practice Setup.
+Thank you for purchasing my Setup.
 If you need any help feel free to contact me.
 Discord: savkee#8955
 
 ===============================================================
 
 Don't forget to leave review on MC-Market!
-Link: https://cloudsetups.com/hub
+Link: https://cloudsetups.com/
 
 ===============================================================
 
